@@ -12,4 +12,4 @@
 
 **MENTOR NAME** : NEELA SANTOSH
 
-![Image](https://github.com/user-attachments/assets/52ffe415-1e10-4f16-a936-92e89ac89738)
+![Image](https://github.com/user-attachments/assets/f23b0aa1-e3dd-4903-859d-b1aa3a194c77)
